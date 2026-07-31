@@ -1,1 +1,1 @@
-# denizkoparan.github.io
+# succary.github.io
